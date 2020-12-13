@@ -1,4 +1,2 @@
-
-
-
-Nu eshe hernya
+Good bye!
+Some other line
